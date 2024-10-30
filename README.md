@@ -1,1 +1,0 @@
-# Jartunek_bartunek
